@@ -7,3 +7,4 @@ Silakan gunakan format berikut:
 <br>
 Berikut adalah daftar volunteer yang diterima:
 * Din Arfiadwi, [oo.or.id](https://oo.ir.id).
+* Dayana Khoiriyah Harahap [Linkedln](https://ww.Linkedln.com/lm/dayana-hrp/).
